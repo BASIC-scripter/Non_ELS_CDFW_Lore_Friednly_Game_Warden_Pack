@@ -1,15 +1,13 @@
-# Non_ELS_CDFW_Lore_Friednly_Game_Warden_Pack
-
 Thake You For Checking Out My Pack!!!
-First off, these arent my vehicles, I only made the liveries, and added handling files for the majority of them. Credits to the original versions are linked down below.
+
+These liveries are based off of California Department of Fish and Wildlife (CDFW). These are "Lore Friendly" meaning they say San Andreas, instead of California as the state of GTA is San Andreas. These aren't my vehicles, I only made the liveries, and added handling files for the majority of them. Credits to the original versions are linked down below.
 
 
 //////MY PLUGS\\\\\\
 
 Join my discord here: https://discord.gg/Wb4JXvpKnk
 
-I take custom orders via discord now so make sure you join my discord, and DM me what type of livery, lights, handling, etc. you would like, and I will do my best to get it to you within one to two weeks.
-Joining my discord also gives you early access to my releases!!!
+I take custom orders via discord now so make sure you join my discord, and DM me what type of livery, lights, handling, etc. you would like, and I will do my best to get it to you within one to two weeks. Joining my discord also gives you early access to my releases!!!
 
 See some of my other stuff here: https://www.youtube.com/playlist?list=PLiXt3wuWNS8lyUmxdZZnvrQM6m7HeVxpP
 
